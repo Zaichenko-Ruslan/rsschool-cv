@@ -6,7 +6,7 @@ person is very talented, without hard work, he simply does not
 realize his potential, and the worst that can happen is to remain
 forever promising.
 
-Why? Because work in IT, like a glass of water in the Sahara  , it adds confidence and you can straighten your back.\
+Why I have chosen IT? Because work in IT, like a glass of water in the Sahara  , it adds confidence and you can straighten your back.
 ## My advantagues:
 1. Sociable;
 2. Considerate;
